@@ -1,2 +1,3 @@
 ## Hi its me Yuri^^
-https://x.com/i/status/1934290815519690812
+![Uploading twitter-gif-1934290815519690812_6a7df17e4edcf.gif…]()
+
