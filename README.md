@@ -1,3 +1,5 @@
 ## Hi its me Yuri^^
-![Uploading twitter-gif-1934290815519690812_6a7df17e4edcf.gif…]()
+https://github.com/user-attachments/assets/58bef5b6-4132-416a-b2e9-3e890d5343de
+
+
 
