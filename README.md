@@ -1,6 +1,6 @@
 <p align="center">⋆｡ﾟ☁︎｡ ᴡᴇʟᴄᴏᴍᴇ ᴛᴏ ᴍʏ ᴘᴀɢᴇ!! ɪᴛs ᴍᴇ ʏᴜʀɪ ʜᴇʀᴇ^^ ﾟ｡⋆</p>
 <p align="center">𝙼𝚢 𝚗𝚊𝚖𝚎 𝚒𝚜 𝚢𝚞𝚛𝚒, 𝚢𝚘𝚞 𝚌𝚊𝚗 𝚌𝚊𝚕𝚕 𝚖𝚎 𝚢𝚞. 𝙸𝚖 𝚙𝚛𝚎𝚝𝚝𝚢 𝚎𝚊𝚜𝚢, 𝚒 𝚘𝚌𝚌𝚊𝚜𝚒𝚘𝚗𝚊𝚕𝚕𝚢 𝚑𝚊𝚟𝚎 𝚊 "𝙳𝙽𝙸", 𝚋𝚞𝚝 𝚖𝚘𝚜𝚝𝚕𝚢 𝚒 𝚓𝚜𝚝 𝚑𝚊𝚟𝚎 𝚊 "𝙲 + 𝙷" :𝙳</p>
-<p align="center">𝕬𝖓𝖉 𝕴 𝖆𝖒 𝖘𝖔𝖒𝖊𝖔𝖓𝖊 𝖜𝖍𝖔 𝖎𝖘 𝖆𝖗𝖔𝖆𝖈𝖊!!<img width="185" height="103" alt="Screenshot_138" src="https://github.com/user-attachments/assets/46deb67d-1fd9-4abd-a62c-a7229532ecdd" /></p>
+< p align="center">𝕬𝖓𝖉 𝕴 𝖆𝖒 𝖘𝖔𝖒𝖊𝖔𝖓𝖊 𝖜𝖍𝖔 𝖎𝖘 𝖆𝖗𝖔𝖆𝖈𝖊!!<img width="185" height="103" alt="Screenshot_138" src="https://github.com/user-attachments/assets/46deb67d-1fd9-4abd-a62c-a7229532ecdd" /></p>
 <p align="center"><img width="981" height="36" alt="Screenshot_134" src="https://github.com/user-attachments/assets/048fd8ad-3618-4ebb-aa8d-856403bed761" /></p>
 <p align="center"><img width="484" height="86" alt="Screenshot_132" src="https://github.com/user-attachments/assets/9435cffd-a7cd-4c5a-bfb0-75a8edbfa3ba" /></p>
 <p align="center"><img width="457" height="272" alt="Screenshot_136" src="https://github.com/user-attachments/assets/e86bf237-f745-4898-82cf-4a2b1b318d17" /></p>
