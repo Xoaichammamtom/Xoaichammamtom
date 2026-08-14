@@ -12,7 +12,8 @@
 <p align="center">˚ ༘ ೀ⋆｡ 𝕬𝖓𝖉 𝖒𝖞 𝖋𝖆𝖛𝖔𝖚𝖗𝖎𝖙𝖊 𝖈𝖍𝖆𝖗𝖆𝖈𝖙𝖊𝖗 𝖎𝖓 𝖕𝖍𝖎𝖌𝖍𝖙𝖎𝖓𝖌!! >< ༘ ⋆ೀ</p>
   <p align="center"><img width="387" height="363" alt="Screenshot_129" src="https://github.com/user-attachments/assets/00df76ab-4256-4e66-b127-1e279e0a18e6" /><img width="459" height="302" alt="Screenshot_131" src="https://github.com/user-attachments/assets/28174641-2331-4d8f-a376-c6d399508d02" /></p>
  <p align="center"><img width="981" height="36" alt="Screenshot_134" src="https://github.com/user-attachments/assets/048fd8ad-3618-4ebb-aa8d-856403bed761" /></p>
-<p align="center"><img width="484" height="86" alt="Screenshot_132" src="https://github.com/user-attachments/assets/3543cc9b-d379-484d-b8fc-1399507980ea" /></p>
+<p align="center"><img width="953" height="69" alt="Screenshot_145" src="https://github.com/user-attachments/assets/25459914-375e-4fcf-bc48-c26b6966062f" /></p>
 <p align="center"> ๋⚝⋆₊✧𝕴𝖓 𝖕𝖔𝖓𝖞 𝖙𝖔𝖜𝖓: 𝕱𝖗𝖊𝖊 "𝕮 + 𝕳" 𝖔𝖗 𝕴𝖓𝖙!! 𝕾𝖔𝖒𝖊𝖙𝖎𝖒𝖊𝖘 𝖑𝖊𝖆𝖛𝖊 𝖎𝖙 𝖔𝖓 "𝕯𝕹𝕴". 𝕴 𝖏𝖘𝖙 𝖎𝖓 𝖘𝖆𝖋𝖊 𝖘𝖊𝖛𝖊𝖗 𝖔𝖗 𝖘𝖊𝖛𝖊𝖗 𝖛𝖎𝖊𝖙𝖓𝖆𝖒𝖊𝖘𝖊, 𝖎𝖓 𝕱𝖔𝖗𝖘𝖆𝖐𝖊𝖓 𝖕𝖑𝖆𝖈𝖊 𝖔𝖗 𝖆𝖓𝖞 𝖕𝖑𝖆𝖈𝖊 𝖜𝖎𝖙𝖍 𝖒𝖞 𝖋𝖗𝖎𝖊𝖓𝖉𝖘^^, 𝖇𝖙𝖜 𝖎 𝖙𝖚𝖗𝖓 𝖔𝖋𝖋 𝖋𝖗𝖎𝖊𝖓𝖉 𝖗𝖊𝖖𝖚𝖊𝖘𝖙 𝖙𝖍𝖊𝖓 𝖔𝖓𝖑𝖞 𝖒𝖊 𝖈𝖆𝖓 𝖆𝖑𝖑𝖔𝖜 𝖋𝖗𝖎𝖊𝖓𝖉 𝖗𝖊𝖖𝖚𝖊𝖘𝖙 :p ✧₊⊹</p>
 <p align="center"><img width="298" height="203" alt="Screenshot_139" src="https://github.com/user-attachments/assets/d868a04d-d311-4bff-8a48-d93e58aa2904" /></p>
 <p align="center">౨ৎ⋆｡⋆𝖙𝖍𝖆𝖙'𝖘 𝖆𝖑𝖑, 𝖙𝖍𝖆𝖓𝖐 𝖞𝖔𝖚 𝖙𝖔 𝖛𝖎𝖘𝖎𝖙 𝖒𝖞 𝖕𝖆𝖌𝖊｡⋆.⊹♡</p>
+<p align="center"><img width="953" height="69" alt="Screenshot_145" src="https://github.com/user-attachments/assets/342f33fe-5c96-49f0-93eb-f9cb8b596535" /></p>
