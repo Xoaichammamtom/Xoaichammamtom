@@ -6,7 +6,7 @@
 <p align="center"><img width="298" height="251" alt="Screenshot_144" src="https://github.com/user-attachments/assets/7f6f64a7-6465-4db3-986e-e7e616573b95" /></p>
 <p align="center"><img width="496" height="307" alt="Screenshot_135" src="https://github.com/user-attachments/assets/ba0cea7c-54db-4eee-bbed-bfe23feebb04" /></p>
 <p align="center">₊˚⑅⋆𝔐𝔶 𝔪𝔞𝔦𝔫 𝔰𝔥𝔦𝔭𝔰 𝔦𝔰 𝔄𝔷𝔲𝔯𝔢𝔗𝔦𝔪𝔢, 𝔄𝔡𝔪𝔦𝔫𝔙𝔦𝔯𝔲𝔰, 𝔞𝔫𝔡 𝔊𝔲𝔢𝔰𝔱𝔑𝔬𝔬𝔟 𝔦𝔫 𝔉𝔬𝔯𝔰𝔞𝔨𝔢𝔫^^. 𝔄𝔰 𝔣𝔬𝔯 𝔓𝔥𝔦𝔤𝔥𝔱𝔦𝔫𝔤, 𝔪𝔶 𝔣𝔞𝔳𝔬𝔯𝔦𝔱𝔢 𝔰𝔥𝔦𝔭 𝔦𝔰 𝔖𝔨𝔞𝔱𝔢𝔖𝔩𝔦𝔫𝔤—𝔞𝔫𝔡, 𝔲𝔥𝔪..., 𝔩𝔢𝔱'𝔰 𝔫𝔬𝔱 𝔱𝔞𝔩𝔨 𝔞𝔟𝔬𝔲𝔱 𝔗𝔦𝔪𝔢𝔄𝔷𝔲𝔯𝔢; ℑ'𝔪 𝔫𝔬𝔱 𝔯𝔢𝔞𝔩𝔩𝔶 𝔦𝔫𝔱𝔬 𝔱𝔥𝔞𝔱 𝔰𝔥𝔦𝔭....˚₊</p>
-<p align="center><img width="346" height="259" alt="Screenshot_130" src="https://github.com/user-attachments/assets/5085eb18-b180-4bd5-83c0-1e3253a03e8a" /></p>
+<p align="center><img width="953" height="69" alt="Screenshot_145" src="https://github.com/user-attachments/assets/a7831414-b879-4030-bb0c-3861eb46ae9a" /></p>
 <p align="center"><img width="484" height="86" alt="Screenshot_132" src="https://github.com/user-attachments/assets/88105804-716a-4e21-ae3d-60ab4fad9eed" /></p>
 <p align="center"><img width="981" height="36" alt="Screenshot_134" src="https://github.com/user-attachments/assets/048fd8ad-3618-4ebb-aa8d-856403bed761" /></p>
 <p align="center">˚ ༘ ೀ⋆｡ 𝕬𝖓𝖉 𝖒𝖞 𝖋𝖆𝖛𝖔𝖚𝖗𝖎𝖙𝖊 𝖈𝖍𝖆𝖗𝖆𝖈𝖙𝖊𝖗 𝖎𝖓 𝖕𝖍𝖎𝖌𝖍𝖙𝖎𝖓𝖌!! >< ༘ ⋆ೀ</p>
