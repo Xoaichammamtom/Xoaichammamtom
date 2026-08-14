@@ -8,6 +8,7 @@
 <p align="center"><img width="467" height="292" alt="Screenshot_147" src="https://github.com/user-attachments/assets/e09d5197-2231-4b04-b4b8-dd4264cc1b10" /><img width="346" height="259" alt="Screenshot_130" src="https://github.com/user-attachments/assets/55e917f4-f8fd-46cd-adc7-ebbfa2f1d01a" /></p>
 <p align="center"><img width="953" height="69" alt="Screenshot_145" src="https://github.com/user-attachments/assets/996a9715-98f2-48b0-bf6b-45f26982235b" /></p>
 <p align="center"><img width="981" height="36" alt="Screenshot_134" src="https://github.com/user-attachments/assets/048fd8ad-3618-4ebb-aa8d-856403bed761" /></p>
+<p align="center"><img width="195" height="181" alt="Screenshot_148" src="https://github.com/user-attachments/assets/6eeb9794-dc4c-48a3-b6b0-98d8f78c6657" /></p>
 <p align="center">˚ ༘ ೀ⋆｡ 𝕬𝖓𝖉 𝖒𝖞 𝖋𝖆𝖛𝖔𝖚𝖗𝖎𝖙𝖊 𝖈𝖍𝖆𝖗𝖆𝖈𝖙𝖊𝖗 𝖎𝖓 𝖕𝖍𝖎𝖌𝖍𝖙𝖎𝖓𝖌!! >< ༘ ⋆ೀ</p>
   <p align="center"><img width="387" height="363" alt="Screenshot_129" src="https://github.com/user-attachments/assets/00df76ab-4256-4e66-b127-1e279e0a18e6" /><img width="459" height="302" alt="Screenshot_131" src="https://github.com/user-attachments/assets/28174641-2331-4d8f-a376-c6d399508d02" /></p>
 <p align="center"><img width="953" height="69" alt="Screenshot_145" src="https://github.com/user-attachments/assets/25459914-375e-4fcf-bc48-c26b6966062f" /></p>
