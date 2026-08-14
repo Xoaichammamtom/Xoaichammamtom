@@ -2,6 +2,8 @@
 <p align="center">𝙼𝚢 𝚗𝚊𝚖𝚎 𝚒𝚜 𝚢𝚞𝚛𝚒, 𝚢𝚘𝚞 𝚌𝚊𝚗 𝚌𝚊𝚕𝚕 𝚖𝚎 𝚢𝚞^^. 𝙸 𝚍𝚘𝚗'𝚝 𝚝𝚊𝚕𝚔 𝚖𝚞𝚌𝚑 𝚞𝚗𝚝𝚒𝚕 𝙸 𝚐𝚎𝚝 𝚌𝚕𝚘𝚜𝚎 𝚜𝚘𝚖𝚎𝚘𝚗𝚎 𝚠𝚎𝚕𝚕. 𝙸'𝚖 𝚊𝚌𝚝𝚞𝚊𝚕𝚕𝚢 𝚟𝚎𝚛𝚢 𝚎𝚊𝚜𝚢𝚐𝚘𝚒𝚗𝚐 𝚊𝚗𝚍 𝚏𝚛𝚒𝚎𝚗𝚍𝚕𝚢—𝙸𝚖 𝚓𝚞𝚜𝚝 𝚚𝚞𝚒𝚎𝚝 𝚋𝚢 𝚗𝚊𝚝𝚞𝚛𝚎, 𝚊𝚗𝚍 𝙸 𝚝𝚎𝚗𝚍 𝚝𝚘 𝚘𝚟𝚎𝚛𝚝𝚑𝚒𝚗𝚔 𝚝𝚑𝚒𝚗𝚐𝚜 𝚕𝚘𝚕 ;-;</p>
 <p align="center">‧₊˚ ⋅𝕬𝖓𝖉 𝕴 𝖆𝖒 𝖘𝖔𝖒𝖊𝖔𝖓𝖊 𝖜𝖍𝖔 𝖎𝖘 𝖆𝖗𝖔𝖆𝖈𝖊!!⋅˚₊‧ ୨୧</p>
 <p align="center"><img width="185" height="103" alt="Screenshot_138" src="https://github.com/user-attachments/assets/46deb67d-1fd9-4abd-a62c-a7229532ecdd" /></p>
+<img width="981" height="36" alt="Screenshot_134" src="https://github.com/user-attachments/assets/f4ea6ed1-835d-4f39-9973-e2d25c427898" />
+<p align="center"><img width="953" height="69" alt="Screenshot_145" src="https://github.com/user-attachments/assets/d1de0bbb-4263-4814-bfbe-cea8d5e0baf8" /></p>
 <p align="center"><img width="981" height="36" alt="Screenshot_134" src="https://github.com/user-attachments/assets/048fd8ad-3618-4ebb-aa8d-856403bed761" /></p>
 <p align="center"><img width="298" height="251" alt="Screenshot_144" src="https://github.com/user-attachments/assets/7f6f64a7-6465-4db3-986e-e7e616573b95" /></p>
 <p align="center"><img width="496" height="307" alt="Screenshot_135" src="https://github.com/user-attachments/assets/ba0cea7c-54db-4eee-bbed-bfe23feebb04" /><img width="346" height="259" alt="Screenshot_130" src="https://github.com/user-attachments/assets/55e917f4-f8fd-46cd-adc7-ebbfa2f1d01a" /></p>
