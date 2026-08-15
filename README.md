@@ -2,7 +2,6 @@
 <p align="center">𝙼𝚢 𝚗𝚊𝚖𝚎 𝚒𝚜 𝚢𝚞𝚛𝚒, 𝚢𝚘𝚞 𝚌𝚊𝚗 𝚌𝚊𝚕𝚕 𝚖𝚎 𝚢𝚞^^. 𝙸 𝚍𝚘𝚗'𝚝 𝚝𝚊𝚕𝚔 𝚖𝚞𝚌𝚑 𝚞𝚗𝚝𝚒𝚕 𝙸 𝚐𝚎𝚝 𝚌𝚕𝚘𝚜𝚎 𝚜𝚘𝚖𝚎𝚘𝚗𝚎 𝚠𝚎𝚕𝚕. 𝙸'𝚖 𝚊𝚌𝚝𝚞𝚊𝚕𝚕𝚢 𝚟𝚎𝚛𝚢 𝚎𝚊𝚜𝚢𝚐𝚘𝚒𝚗𝚐 𝚊𝚗𝚍 𝚏𝚛𝚒𝚎𝚗𝚍𝚕𝚢—𝙸𝚖 𝚓𝚞𝚜𝚝 𝚚𝚞𝚒𝚎𝚝 𝚋𝚢 𝚗𝚊𝚝𝚞𝚛𝚎, 𝚊𝚗𝚍 𝙸 𝚝𝚎𝚗𝚍 𝚝𝚘 𝚘𝚟𝚎𝚛𝚝𝚑𝚒𝚗𝚔 𝚝𝚑𝚒𝚗𝚐𝚜 𝚕𝚘𝚕 ;-;</p>
 <p align="center">‧₊˚ ⋅𝕬𝖓𝖉 𝕴 𝖆𝖒 𝖘𝖔𝖒𝖊𝖔𝖓𝖊 𝖜𝖍𝖔 𝖎𝖘 𝖆𝖗𝖔𝖆𝖈𝖊!!⋅˚₊‧ ୨୧</p>
 <p align="center"><img width="60" height="38" alt="Screenshot_150" src="https://github.com/user-attachments/assets/c56c1e42-b96a-4e54-9ce6-5ac8eefb8cbd" /></p>
-<img width="981" height="36" alt="Screenshot_134" src="https://github.com/user-attachments/assets/f4ea6ed1-835d-4f39-9973-e2d25c427898" />
 <p align="center"><img width="953" height="69" alt="Screenshot_145" src="https://github.com/user-attachments/assets/d1de0bbb-4263-4814-bfbe-cea8d5e0baf8" /></p>
 <p align="center">₊˚⑅⋆𝔐𝔶 𝔪𝔞𝔦𝔫 𝔰𝔥𝔦𝔭𝔰 𝔦𝔰 𝔄𝔷𝔲𝔯𝔢𝔗𝔦𝔪𝔢, 𝔄𝔡𝔪𝔦𝔫𝔙𝔦𝔯𝔲𝔰, 𝔞𝔫𝔡 𝔊𝔲𝔢𝔰𝔱𝔑𝔬𝔬𝔟 𝔦𝔫 𝔉𝔬𝔯𝔰𝔞𝔨𝔢𝔫^^. 𝔄𝔰 𝔣𝔬𝔯 𝔓𝔥𝔦𝔤𝔥𝔱𝔦𝔫𝔤, 𝔪𝔶 𝔣𝔞𝔳𝔬𝔯𝔦𝔱𝔢 𝔰𝔥𝔦𝔭 𝔦𝔰 𝔖𝔨𝔞𝔱𝔢𝔖𝔩𝔦𝔫𝔤—𝔞𝔫𝔡, 𝔲𝔥𝔪..., 𝔩𝔢𝔱'𝔰 𝔫𝔬𝔱 𝔱𝔞𝔩𝔨 𝔞𝔟𝔬𝔲𝔱 𝔗𝔦𝔪𝔢𝔄𝔷𝔲𝔯𝔢; ℑ'𝔪 𝔫𝔬𝔱 𝔯𝔢𝔞𝔩𝔩𝔶 𝔦𝔫𝔱𝔬 𝔱𝔥𝔞𝔱 𝔰𝔥𝔦𝔭....˚₊</p>
 <p align="center"><img width="342" height="223" alt="Screenshot_151" src="https://github.com/user-attachments/assets/8a89b93a-3ad8-4508-aaf3-715efd337438" /></p>
