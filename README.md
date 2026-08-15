@@ -13,8 +13,5 @@
 <p align="center"><img width="953" height="69" alt="Screenshot_145" src="https://github.com/user-attachments/assets/25459914-375e-4fcf-bc48-c26b6966062f" /></p>
 <p align="center"><img width="981" height="36" alt="Screenshot_134" src="https://github.com/user-attachments/assets/048fd8ad-3618-4ebb-aa8d-856403bed761" /></p>
 <p align="center"> ๋⚝⋆₊✧𝕴𝖓 𝖕𝖔𝖓𝖞 𝖙𝖔𝖜𝖓: 𝕱𝖗𝖊𝖊 "𝕮 + 𝕳" 𝖔𝖗 𝕴𝖓𝖙!! 𝕾𝖔𝖒𝖊𝖙𝖎𝖒𝖊𝖘 𝖑𝖊𝖆𝖛𝖊 𝖎𝖙 𝖔𝖓 "𝕯𝕹𝕴". 𝕴 𝖏𝖘𝖙 𝖎𝖓 𝖘𝖆𝖋𝖊 𝖘𝖊𝖛𝖊𝖗 𝖔𝖗 𝖘𝖊𝖛𝖊𝖗 𝖛𝖎𝖊𝖙𝖓𝖆𝖒𝖊𝖘𝖊, 𝖎𝖓 𝕱𝖔𝖗𝖘𝖆𝖐𝖊𝖓 𝖕𝖑𝖆𝖈𝖊 𝖔𝖗 𝖆𝖓𝖞 𝖕𝖑𝖆𝖈𝖊 𝖜𝖎𝖙𝖍 𝖒𝖞 𝖋𝖗𝖎𝖊𝖓𝖉𝖘^^, 𝖇𝖙𝖜 𝖎 𝖙𝖚𝖗𝖓 𝖔𝖋𝖋 𝖋𝖗𝖎𝖊𝖓𝖉 𝖗𝖊𝖖𝖚𝖊𝖘𝖙 𝖙𝖍𝖊𝖓 𝖔𝖓𝖑𝖞 𝖒𝖊 𝖈𝖆𝖓 𝖆𝖑𝖑𝖔𝖜 𝖋𝖗𝖎𝖊𝖓𝖉 𝖗𝖊𝖖𝖚𝖊𝖘𝖙 :p ✧₊⊹</p>
-<p align="center"><img width="298" height="203" alt="Screenshot_139" src="https://github.com/user-attachments/assets/d868a04d-d311-4bff-8a48-d93e58aa2904" /></p>
 <p align="center">౨ৎ⋆｡⋆𝖙𝖍𝖆𝖙'𝖘 𝖆𝖑𝖑, 𝖙𝖍𝖆𝖓𝖐 𝖞𝖔𝖚 𝖙𝖔 𝖛𝖎𝖘𝖎𝖙 𝖒𝖞 𝖕𝖆𝖌𝖊｡⋆.⊹♡</p>
 <p align="center"><img width="953" height="69" alt="Screenshot_145" src="https://github.com/user-attachments/assets/342f33fe-5c96-49f0-93eb-f9cb8b596535" /></p>
-<p align="center"><img width="20" height="20" alt="68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f31383336376262656330326433386663626437663631653839633237373837632f323536306339643164326438373462662d34322f7337357837355f63312f636161616562346237336231646239343" src="https://github.com/user-attachments/assets/76429c78-3fa3-4463-86d9-b3c5b617a778" /></p>
-
