@@ -6,15 +6,24 @@
 
 <details>
   
-  <summary>$\color{#7f1cbc}{\mathit{𝖎𝖒𝖕𝖔𝖗𝖙𝖆𝖓𝖙!!}}$</summary>
+  <summary>$\color{#2073a2}{\mathit{𝖎𝖒𝖕𝖔𝖗𝖙𝖆𝖓𝖙!!}}$</summary>
   
   <p align="center"><img width="16" height="16" alt="68747470733a2f2f63646e2e696d6763686573742e636f6d2f66696c65732f6131363764383731326138342e676966" src="https://github.com/user-attachments/assets/49b1a1e7-ecfe-4ffd-b99a-23d1e3102b36" />꒰୧ ‧₊˚🔧꒱<img width="16" height="16" alt="68747470733a2f2f63646e2e696d6763686573742e636f6d2f66696c65732f6131363764383731326138342e676966" src="https://github.com/user-attachments/assets/49b1a1e7-ecfe-4ffd-b99a-23d1e3102b36" /</p>
-<p align="center">𝙸 𝚞𝚜𝚞𝚊𝚕𝚕𝚢 𝚠𝚑𝚒𝚜 𝚠𝚒𝚝𝚑 𝚖𝚢 𝚏𝚛𝚒𝚎𝚗𝚍𝚜, 𝚘𝚛 𝚐𝚘 𝚘𝚏𝚏𝚝𝚊𝚋 𝚠𝚊𝚒𝚝𝚒𝚗𝚐 𝚏𝚘𝚛 𝚖𝚢 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚝𝚘 𝚌𝚘𝚖𝚎 𝚘𝚗𝚕𝚒𝚗𝚎. 𝚈𝚘𝚞 𝚖𝚒𝚐𝚑𝚝 𝚏𝚒𝚗𝚍 𝚖𝚎 𝚊𝚝 𝚝𝚑𝚎 𝚋𝚊𝚔𝚎𝚛𝚢 𝚒𝚗 𝚜𝚊𝚏𝚎 𝚜𝚎𝚟𝚎𝚛– 𝚝𝚑𝚎 𝙵𝚘𝚛𝚜𝚊𝚔𝚎𝚗 𝚏𝚊𝚗𝚍𝚘𝚖'𝚜 𝚙𝚕𝚊𝚌𝚎 𝚘𝚛 𝚒𝚗 𝚜𝚎𝚟𝚎𝚛 𝚟𝚒𝚎𝚝𝚗𝚊𝚖^^. 𝙸'𝚖 𝚊 𝚌𝚊𝚗𝚘𝚗 𝚜𝚑𝚒𝚙, 𝚜𝚘 𝚙𝚕𝚎𝚊𝚜𝚎 𝚍𝚘𝚗'𝚝 𝚜𝚊𝚋𝚘𝚝𝚊𝚐𝚎 𝚖𝚢 𝚜𝚑𝚒𝚙.</p>
-<p align="center"><img width="301" height="268" alt="Screenshot_176" src="https://github.com/user-attachments/assets/cad925f8-622d-45b5-8346-56b016eb0bea" /></p>
+<p align="center">𝙵𝚊𝚗𝚍𝚘𝚖 𝚒 𝚎𝚗𝚓𝚘𝚢: 𝙷𝚘𝚗𝚔𝚊𝚒 𝚜𝚝𝚊𝚒𝚛 𝚛𝚊𝚒𝚕, 𝙿𝚑𝚒𝚐𝚑𝚝𝚒𝚗𝚐, 𝙵𝚘𝚛𝚜𝚊𝚔𝚎𝚗,... </p>
+<p align="center">
+<p align="center"><img width="349" height="131" alt="Screenshot_178" src="https://github.com/user-attachments/assets/802f793d-0a73-4c88-8fba-d752a2b321ae" /></p>
+<p align="center">$\color{#2073a2}{\mathit{𝔰𝔥𝔦𝔭𝔰ㅤ𝔦𝔫ㅤ𝔣𝔬𝔯𝔰𝔞𝔨𝔢𝔫:}}$</p>
+<p align="center">𝙰𝚣𝚞𝚛𝚎𝚝𝚒𝚖𝚎 𝚗𝚘𝚝 𝚜𝚠𝚒𝚝𝚌𝚑, 𝙿𝚊𝚢𝚌𝚑𝚎𝚌𝚔,</p>
+<p align="center">𝙹𝚘𝚑𝚗𝚓𝚊𝚗𝚎, 𝙰𝚍𝚖𝚒𝚗𝚟𝚒𝚛𝚞𝚜,</p>
+<p align="center">𝙶𝚞𝚎𝚜𝚝𝚗𝚘𝚘𝚋, 𝚅𝚘𝚒𝚍𝚋𝚞𝚛𝚐𝚎𝚛.</p>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+<p align="center"><p align="center">$\color{#2073a2}{\mathit{𝔰𝔥𝔦𝔭𝔰ㅤ𝔦𝔫ㅤ𝔭𝔥𝔦𝔤𝔥𝔱𝔦𝔫𝔤:}}$</p>
+<p align="center">𝚜𝚔𝚊𝚝𝚎𝚋𝚘𝚊𝚛𝚍 ❤ 𝚜𝚕𝚒𝚗𝚐𝚜𝚑𝚘𝚝</p>
+<p align="center">𝚖𝚎𝚍𝚔𝚒𝚝 ❤ 𝚜𝚞𝚋𝚜𝚙𝚊𝚌𝚎</p>
 
 <p align="center">‧₊˚ ⋅𝕬𝖓𝖉 𝕴 𝖆𝖒 𝖘𝖔𝖒𝖊𝖔𝖓𝖊 𝖜𝖍𝖔 𝖎𝖘 𝖆𝖗𝖔𝖆𝖈𝖊!!⋅˚₊‧ ୨୧</p>
 <p align="center"><img width="60" height="38" alt="Screenshot_150" src="https://github.com/user-attachments/assets/c56c1e42-b96a-4e54-9ce6-5ac8eefb8cbd" /></p>
-
+<p align="center"><img width="16" height="16" alt="68747470733a2f2f63646e2e696d6763686573742e636f6d2f66696c65732f6131363764383731326138342e676966" src="https://github.com/user-attachments/assets/49b1a1e7-ecfe-4ffd-b99a-23d1e3102b36" /></p>
 <p align="center">𝙳𝙽𝙸 𝚝𝚘𝚡𝚒𝚌 𝚘𝚛 𝚊𝚗𝚗𝚘𝚢𝚒𝚗𝚐 𝚒𝚗𝚝𝚎𝚛𝚊𝚌𝚝𝚒𝚘𝚗𝚜!!</p>
 </details>
 
