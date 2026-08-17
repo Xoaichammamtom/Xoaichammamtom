@@ -42,3 +42,4 @@
   <p align="center"><img width="20" height="20" alt="68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f31383336376262656330326433386663626437663631653839633237373837632f323536306339643164326438373462662d34322f7337357837355f63312f636161616562346237336231646239343" src="https://github.com/user-attachments/assets/8d27c51d-5ff5-4490-b379-119c20e9b52d" /></p>
   <p align="center">౨ৎ⋆｡⋆𝖙𝖍𝖆𝖙'𝖘 𝖆𝖑𝖑, 𝖙𝖍𝖆𝖓𝖐 𝖞𝖔𝖚 𝖙𝖔 𝖛𝖎𝖘𝖎𝖙 𝖒𝖞 𝖕𝖆𝖌𝖊｡⋆.⊹♡</p>
 <p align="center"><img width="953" height="69" alt="Screenshot_145" src="https://github.com/user-attachments/assets/342f33fe-5c96-49f0-93eb-f9cb8b596535" /></p>
+
