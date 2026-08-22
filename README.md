@@ -24,13 +24,8 @@
 <p align="center">‧₊˚ ⋅𝕬𝖓𝖉 𝕴 𝖆𝖒 𝖘𝖔𝖒𝖊𝖔𝖓𝖊 𝖜𝖍𝖔 𝖎𝖘 𝖆𝖗𝖔𝖆𝖈𝖊!!⋅˚₊‧ ୨୧</p>
 <p align="center"><img width="60" height="38" alt="Screenshot_150" src="https://github.com/user-attachments/assets/c56c1e42-b96a-4e54-9ce6-5ac8eefb8cbd" /></p>
 <p align="center"><img width="16" height="16" alt="68747470733a2f2f63646e2e696d6763686573742e636f6d2f66696c65732f6131363764383731326138342e676966" src="https://github.com/user-attachments/assets/49b1a1e7-ecfe-4ffd-b99a-23d1e3102b36" /></p>
-<p align="center">𝙳𝙽𝙸 𝚝𝚘𝚡𝚒𝚌 𝚘𝚛 𝚊𝚗𝚗𝚘𝚢𝚒𝚗𝚐 𝚒𝚗𝚝𝚎𝚛𝚊𝚌𝚝𝚒𝚘𝚗𝚜!!</p>
+<p align="center">𝙳𝙽𝙸 𝚝𝚘𝚡𝚒𝚌, 𝙸𝚆𝙲 𝚘𝚛 𝚊𝚗𝚗𝚘𝚢𝚒𝚗𝚐 𝚒𝚗𝚝𝚎𝚛𝚊𝚌𝚝𝚒𝚘𝚗𝚜!!</p>
 </details>
-
-</div>
-<p align="left">
-  <p align="center">🌼 <i><a href="LINK_1">IWC</a></i> 🌼</p>
-</p>
 
 <p align="center"><img width="953" height="69" alt="Screenshot_145" src="https://github.com/user-attachments/assets/d1de0bbb-4263-4814-bfbe-cea8d5e0baf8" /></p>
 <p align="center">₊˚⑅⋆𝔐𝔶 𝔪𝔞𝔦𝔫 𝔰𝔥𝔦𝔭𝔰 𝔦𝔰 𝔄𝔷𝔲𝔯𝔢𝔗𝔦𝔪𝔢, 𝔄𝔡𝔪𝔦𝔫𝔙𝔦𝔯𝔲𝔰, 𝔞𝔫𝔡 𝔊𝔲𝔢𝔰𝔱𝔑𝔬𝔬𝔟 𝔦𝔫 𝔉𝔬𝔯𝔰𝔞𝔨𝔢𝔫^^. 𝔄𝔰 𝔣𝔬𝔯 𝔓𝔥𝔦𝔤𝔥𝔱𝔦𝔫𝔤, 𝔪𝔶 𝔣𝔞𝔳𝔬𝔯𝔦𝔱𝔢 𝔰𝔥𝔦𝔭 𝔦𝔰 𝔖𝔨𝔞𝔱𝔢𝔖𝔩𝔦𝔫𝔤—𝔞𝔫𝔡, 𝔲𝔥𝔪..., 𝔩𝔢𝔱'𝔰 𝔫𝔬𝔱 𝔱𝔞𝔩𝔨 𝔞𝔟𝔬𝔲𝔱 𝔗𝔦𝔪𝔢𝔄𝔷𝔲𝔯𝔢; ℑ'𝔪 𝔫𝔬𝔱 𝔯𝔢𝔞𝔩𝔩𝔶 𝔦𝔫𝔱𝔬 𝔱𝔥𝔞𝔱 𝔰𝔥𝔦𝔭....˚₊</p>
