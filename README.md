@@ -9,8 +9,11 @@
   <summary>$\color{#2073a2}{\mathit{𝖎𝖒𝖕𝖔𝖗𝖙𝖆𝖓𝖙!!}}$</summary>
   
   <p align="center"><img width="16" height="16" alt="68747470733a2f2f63646e2e696d6763686573742e636f6d2f66696c65732f6131363764383731326138342e676966" src="https://github.com/user-attachments/assets/49b1a1e7-ecfe-4ffd-b99a-23d1e3102b36" />꒰୧ ‧₊˚🔧꒱<img width="16" height="16" alt="68747470733a2f2f63646e2e696d6763686573742e636f6d2f66696c65732f6131363764383731326138342e676966" src="https://github.com/user-attachments/assets/49b1a1e7-ecfe-4ffd-b99a-23d1e3102b36" /</p>
+<p align="center">𝙸'𝚖 𝚌𝚞𝚛𝚛𝚎𝚗𝚝𝚕𝚢 𝚘𝚟𝚎𝚛𝚠𝚑𝚎𝚕𝚖𝚎𝚍 𝚠𝚒𝚝𝚑 𝚌𝚘𝚗𝚗𝚎𝚌𝚝𝚒𝚘𝚗 𝚛𝚎𝚚𝚞𝚎𝚜𝚝𝚜, 𝚜𝚘 𝙸 𝚌𝚊𝚗'𝚝 𝚊𝚌𝚌𝚎𝚙𝚝 𝚊𝚗𝚢 𝚖𝚘𝚛𝚎 𝚏𝚛𝚒𝚎𝚗𝚍 𝚛𝚎𝚚𝚞𝚎𝚜𝚝𝚜!! 𝙱𝚞𝚝 𝚢𝚘𝚞 𝚌𝚊𝚗 𝚌𝚘𝚖𝚎 𝚊𝚗𝚍 𝚜𝚒𝚝 𝚠𝚒𝚝𝚑 𝚖𝚎^^</p>
+<p align="center">𝙳𝙽𝙸 𝚝𝚘𝚡𝚒𝚌, 𝙸𝚆𝙲 𝚘𝚛 𝚊𝚗𝚗𝚘𝚢𝚒𝚗𝚐 𝚒𝚗𝚝𝚎𝚛𝚊𝚌𝚝𝚒𝚘𝚗𝚜!!</p>
+<p align="center"><img width="16" height="16" alt="636687665-49b1a1e7-ecfe-4ffd-b99a-23d1e3102b36" src="https://github.com/user-attachments/assets/137d3aad-eca0-4225-a08e-125f8337d740" /></p>
+
 <p align="center">𝙵𝚊𝚗𝚍𝚘𝚖 𝚒 𝚎𝚗𝚓𝚘𝚢: 𝙷𝚘𝚗𝚔𝚊𝚒 𝚜𝚝𝚊𝚒𝚛 𝚛𝚊𝚒𝚕, 𝙿𝚑𝚒𝚐𝚑𝚝𝚒𝚗𝚐, 𝙵𝚘𝚛𝚜𝚊𝚔𝚎𝚗,... </p>
-<p align="center">
 <p align="center"><img width="349" height="131" alt="Screenshot_178" src="https://github.com/user-attachments/assets/802f793d-0a73-4c88-8fba-d752a2b321ae" /></p>
 <p align="center">$\color{#2073a2}{\mathit{𝔰𝔥𝔦𝔭𝔰ㅤ𝔦𝔫ㅤ𝔣𝔬𝔯𝔰𝔞𝔨𝔢𝔫:}}$</p>
 <p align="center">𝙰𝚣𝚞𝚛𝚎𝚝𝚒𝚖𝚎 𝚗𝚘𝚝 𝚜𝚠𝚒𝚝𝚌𝚑, 𝙿𝚊𝚢𝚌𝚑𝚎𝚌𝚔,</p>
@@ -24,7 +27,7 @@
 <p align="center">‧₊˚ ⋅𝕬𝖓𝖉 𝕴 𝖆𝖒 𝖘𝖔𝖒𝖊𝖔𝖓𝖊 𝖜𝖍𝖔 𝖎𝖘 𝖆𝖗𝖔𝖆𝖈𝖊!!⋅˚₊‧ ୨୧</p>
 <p align="center"><img width="60" height="38" alt="Screenshot_150" src="https://github.com/user-attachments/assets/c56c1e42-b96a-4e54-9ce6-5ac8eefb8cbd" /></p>
 <p align="center"><img width="16" height="16" alt="68747470733a2f2f63646e2e696d6763686573742e636f6d2f66696c65732f6131363764383731326138342e676966" src="https://github.com/user-attachments/assets/49b1a1e7-ecfe-4ffd-b99a-23d1e3102b36" /></p>
-<p align="center">𝙳𝙽𝙸 𝚝𝚘𝚡𝚒𝚌, 𝙸𝚆𝙲 𝚘𝚛 𝚊𝚗𝚗𝚘𝚢𝚒𝚗𝚐 𝚒𝚗𝚝𝚎𝚛𝚊𝚌𝚝𝚒𝚘𝚗𝚜!!</p>
+
 </details>
 
 <p align="center"><img width="953" height="69" alt="Screenshot_145" src="https://github.com/user-attachments/assets/d1de0bbb-4263-4814-bfbe-cea8d5e0baf8" /></p>
