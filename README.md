@@ -6,12 +6,12 @@
 
 <details>
   
-  <summary>$\color{#2073a2}{\mathit{𝕬𝖇𝖔𝖚𝖙ㅤ𝖒𝖊 <3}}$</summary>
+  <summary>$\color{#2073a2}{\mathit{𝐌𝐲ㅤ𝐚𝐜𝐜𝐨𝐮𝐧𝐭!! <3}}$</summary>
 
 <p align="center"><img width="16" height="16" alt="636687665-49b1a1e7-ecfe-4ffd-b99a-23d1e3102b36" src="https://github.com/user-attachments/assets/67074fda-228a-42fb-b5d7-5c4b70aa5564" />₊˚⊹꒰ᐢ. .ᐢ꒱₊˚⊹<img width="16" height="16" alt="636687665-49b1a1e7-ecfe-4ffd-b99a-23d1e3102b36" src="https://github.com/user-attachments/assets/7143b0f5-c064-4546-95d9-cf1265d44d83" /></p>
 
-  <p align="center">$\color{#366986}{\mathit{𝐌𝐲ㅤ𝐚𝐜𝐜𝐨𝐮𝐧𝐭:}}$</summary></p>
   <p align="center">𝔻𝚒𝚜𝚌𝚘𝚛𝚍: yuri_zen</p>
+  <p align="center">ℝ𝚘𝚋𝚕𝚘𝚡: Rujiislazy</p>
   <p align="center">𝕏: Yuri_zenhere
   <p align="center">𝔽𝚊𝚌𝚎𝚋𝚘𝚘𝚔: Yuri Zen
   <p align="center"><img width="20" height="20" alt="636476698-8d27c51d-5ff5-4490-b379-119c20e9b52d" src="https://github.com/user-attachments/assets/b9233e20-de03-4cc3-939d-a4338639555c" /></p>
