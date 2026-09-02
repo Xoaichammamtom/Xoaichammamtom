@@ -40,6 +40,7 @@
 <p align="center"><p align="center">$\color{#2073a2}{\mathit{𝔰𝔥𝔦𝔭𝔰ㅤ𝔦𝔫ㅤ𝔭𝔥𝔦𝔤𝔥𝔱𝔦𝔫𝔤:}}$</p>
 <p align="center">𝚜𝚔𝚊𝚝𝚎𝚋𝚘𝚊𝚛𝚍 ❤ 𝚜𝚕𝚒𝚗𝚐𝚜𝚑𝚘𝚝</p>
 <p align="center">𝚖𝚎𝚍𝚔𝚒𝚝 ❤ 𝚜𝚞𝚋𝚜𝚙𝚊𝚌𝚎</p>
+<p align="center">𝚉𝚞𝚔𝚊 ❤ 𝚉𝚞𝚔𝚊 𝙳𝚊𝚛𝚔𝚑𝚎𝚊𝚛𝚝</p>
 
 <p align="center">‧₊˚ ⋅𝕬𝖓𝖉 𝕴 𝖆𝖒 𝖘𝖔𝖒𝖊𝖔𝖓𝖊 𝖜𝖍𝖔 𝖎𝖘 𝖆𝖗𝖔𝖆𝖈𝖊!!⋅˚₊‧ ୨୧</p>
 <p align="center"><img width="60" height="38" alt="Screenshot_150" src="https://github.com/user-attachments/assets/c56c1e42-b96a-4e54-9ce6-5ac8eefb8cbd" /></p>
