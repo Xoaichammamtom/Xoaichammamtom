@@ -12,8 +12,8 @@
 
   <p align="center">𝔻𝚒𝚜𝚌𝚘𝚛𝚍: yuri_zen</p>
   <p align="center">ℝ𝚘𝚋𝚕𝚘𝚡: Rujiislazy</p>
-  <p align="center">𝕏: Yuri_zenhere
-  <p align="center">𝔽𝚊𝚌𝚎𝚋𝚘𝚘𝚔: Yuri Zen
+  <p align="center">𝕏: Xoaichammamtom_
+  <p align="center">𝔽𝚊𝚌𝚎𝚋𝚘𝚘𝚔: Xoàichấmmắmtôm Và Kemtrộnxìdầu
   <p align="center"><img width="20" height="20" alt="636476698-8d27c51d-5ff5-4490-b379-119c20e9b52d" src="https://github.com/user-attachments/assets/b9233e20-de03-4cc3-939d-a4338639555c" /></p>
 
 
